@@ -5,7 +5,7 @@ _Zelfstandige D&D 5e one-shot voor 4 personages van level 12–14_
 **Speelduur:** ongeveer 4–6 uur  
 **Genre:** mysterie, fantasy-horror, heroïsche dungeon crawl  
 **Plaats:** het afgelegen stadje Bellendonk, op ongeveer twee dagen reizen van Teziir  
-**Thema:** sommige rampen worden niet tegengehouden door harder te slaan, maar door op tijd te luisteren.
+**Thema:** sommige rampen worden niet tegengehouden door harder te slaan, maar door op tijd te luisteren..
 
 ---
 
