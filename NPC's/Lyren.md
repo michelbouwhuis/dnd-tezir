@@ -1,0 +1,1 @@
+Leraar / meester van [[Enders Bray]]. Geloofde niet dat de [[De toren van Alendor]] op gezette tijden op gezette locaties verschijnt.

@@ -1,0 +1,5 @@
+
+De woorden van Seraphine:
+Geen gewone sekte, maar een groeiende beweging van gelovigen die overtuigd zijn dat de wereld fundamenteel gebroken is. Volgens hen is zonde geen keuze, maar een onvermijdelijk gevolg van vrije wil—en dus moet vrije wil zelf worden “gezuiverd”. Ze prediken dat er een nieuwe dageraad moet komen: een moment waarop al het onzuivere wordt weggebrand en alleen perfectie overblijft. Hun volgelingen zijn geen razende fanatici, maar vaak rustige, overtuigde mensen die geloven dat ze deelnemen aan iets groters—iets noodzakelijks.
+
+Om dit te bereiken, proberen ze een “perfecte zon” te creëren: een bron van puur, goddelijk licht die de wereld zal overspoelen. Ze geloven dat dit licht alle pijn, conflict en kwaad zal uitwissen. Wat ze niet begrijpen—or weigeren te zien—is dat dit licht geen onderscheid maakt. Het zal niet alleen zonde vernietigen, maar ook alles wat menselijk is: twijfel, keuze, en uiteindelijk het leven zelf. Voor hen is dat geen tragedie… maar verlossing.

@@ -1,0 +1,1 @@
+Oryx the Taken Kin is de hoofd anatagonist. [[Venger]] werkt voor hem.
