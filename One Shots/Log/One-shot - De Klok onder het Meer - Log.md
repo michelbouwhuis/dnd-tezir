@@ -76,5 +76,21 @@ DM: Lees intro voor. Vertelt kort iets over Bellendonk.
 > Orla: Tijdens een visioen, in mijn slaap.
 > Dan horen ze de klok een keer slaan.
 > Ze voelen weer even een rem op de werkelijkheid.
+> De toren lijkt nu tussen tekening 1 en 2 in te zitten.
 
+>Investigation Check: DC 15; Mirell komt er achter dat het in de tekeningen om drie torens gaat.
 ### 4. De keuze om naar het meer te gaan
+> Mirell: We gaan de toren van dichterbij.
+> Mirell is op zoek naar touw.
+> Om Calibretto af te laten dalen in het meer, eventueel.
+> Richting de kade.
+> Er is een viswinkel bij de kade en daar wordt touw verkocht.
+> Bernarnd: Welkom in mijn winkel. Wat kan ik voor jullie doen?
+> Lang stuk touw zoeken ze. Zit op rol. 200 voet. 100 gp.
+
+# Scène 2 – Het meer zonder rimpels
+> Ze vouwen de boot uit en zetten de grote boot op het water.
+> Ze zien mist samenplekken boven het water.
+> Eerste check om te ontwijken, remmen lukt.
+> Ze varen verder rechstreeks richting de toren.
+> Tweede groep: ze varen er rustig naar toe. Ze komen aan boord en vallen aan.
